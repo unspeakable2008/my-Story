@@ -1,1 +1,1 @@
-once upon a time somewhere in a district of haryana there was a boy named after the first man to step on the moon(Neil Armstrong).
+once upon a time somewhere in a district of haryana there was a boy named after the first man to step on the moon(Neil Armstrong).He was in class 9 and he was a magnificent boy. He played drumes and got thousands of views in 2 years. He know how to code a lil bit but other than that he used to play video games like minecraft, roblox and the popular game among us.
